@@ -9,3 +9,4 @@
 - 🤔 I’m looking for help with aprendizaje estadístico y programación.
 - 💬 Ask me about planeación y optmización de procesos. También tengo amplio conocimiento y experiencia en el mundo de las telecomunicaciones.
 
+Da un poco de miedo todo esto, pero me estuve preparando y sé que voy a sacarlo adelante.
